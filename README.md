@@ -52,8 +52,18 @@ Well, right now, I tried to explore more and more about cybersecurity and coding
 
 ˚ʚ♡ɞ˚ Pinterest: [johnwaynecher](https://www.pinterest.com/johnwaynecher)
 
+─── ⋆⋅♡⋅⋆ ───
+
+<p align="center">
+  <a href="https://gist.github.com/DefaultJohnWayne/e143d462888d97a03ed3b8f70c6b6df6">
+    ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆ Click here to sign my cute guestbook!! ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
+  </a>
+</p>
 
 
+
+˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
+　　　.   　　˚　✭　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　✭　.　　. 　 ˚　.　　　　 　　 　　　　 ✦
 
 
 
