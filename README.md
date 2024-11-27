@@ -50,7 +50,7 @@ Well, right now, I tried to explore more and more about cybersecurity and coding
 
 ˚ʚ♡ɞ˚ Discord: [johnwaynecher](https://discord.com/users/johnwaynecher)
 
-˚ʚ♡ɞ˚ Pinterest: [johnwaynecher](https://www.pinterest.com/johnwaynecher)
+˚ʚ♡ɞ˚ LinkedIn: COMING SOON
 
 ─── ⋆⋅♡⋅⋆ ───
 
