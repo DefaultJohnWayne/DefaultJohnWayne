@@ -34,7 +34,7 @@ Well, right now, I tried to explore more and more about cybersecurity and coding
 
 ˚ʚ♡ɞ˚ Discord: [johnwaynecher](https://discord.com/users/johnwaynecher)
 
-˚ʚ♡ɞ˚ LinkedIn: COMING SOON
+˚ʚ♡ɞ˚ LinkedIn: [Nurul Najihah Sharudin](https://www.linkedin.com/in/nurul-najihah-sharudin-83411120a/)
 
 ─── ⋆⋅♡⋅⋆ ───
 
