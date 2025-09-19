@@ -27,20 +27,6 @@ Well, right now, I tried to explore more and more about cybersecurity and coding
 
 ─── ⋆⋅♡⋅⋆ ───
 
-💌 **Little things about me ⋆ ˚｡⋆୨୧˚**:
-
-˗ˏˋ ♡ ˎˊ˗ I am currently doing my degree's FYP in cybersecurity, wish me luck! 
-
-˗ˏˋ ♡ ˎˊ˗ I like to learn at my own pace but I am just a beginner right now :>
-
-˗ˏˋ ♡ ˎˊ˗ I am not quite sure if I am a fast learner or slow, depends on the topic!
-
-˗ˏˋ ♡ ˎˊ˗ I am mostly active and productive at night, yes, a night-owl ^^ 
-
-˗ˏˋ ♡ ˎˊ˗ I like to do everything cutely, as you can see in my profile
-
-˗ˏˋ ♡ ˎˊ˗ Oh, last but not least, I like to play games, and a bit competitive but still only for fun~
-
 ─── ⋆⋅♡⋅⋆ ───
 
 ## 💖 Connect with Me⋆౨ৎ˚⟡˖ ࣪ :
