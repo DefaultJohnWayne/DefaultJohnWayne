@@ -17,7 +17,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠻⠻⢦⣄⠀⠀⠀⠀⠀⠀⠀⠀⣠⡴⠛⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠉⠛⠶⣄⡀⢀⣤⠶⠋⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  :o
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠛⠋⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀Hello there !! 
-                                                    **I am Marinn or maybe, John Wayne ^^**
+                                                    **I am Jiya or maybe, John Wayne ^^**
 
 Welcome to my little corner of GitHub! ──★ ˙🍓 ̟ !! 
 
@@ -26,6 +26,8 @@ I am currently still trying to survive my student life ^^
 Well, right now, I tried to explore more and more about cybersecurity and coding, very cutesy isn't it?
 
 ─── ⋆⋅♡⋅⋆ ───
+
+One day, after finishing my FYP, i will upload all my projects because its on my old laptop </3
 
 ─── ⋆⋅♡⋅⋆ ───
 
